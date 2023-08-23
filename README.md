@@ -1,1 +1,1 @@
-New beginning
+The journey
